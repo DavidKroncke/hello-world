@@ -2,4 +2,4 @@
 
 Hey Guys!
 
-I like to play video games, learn new things, and make a good stirfry.
+I like to play video games, learn new things, and make a good stir-fry.
