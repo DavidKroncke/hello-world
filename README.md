@@ -2,4 +2,7 @@
 
 Hey Guys!
 
-I like to play video games, learn new things, and make a good stir-fry.
+I like to play video games, learn new things, and make a good stir-fry. 
+
+My favorite color is Blue.
+
